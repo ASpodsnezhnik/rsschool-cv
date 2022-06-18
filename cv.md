@@ -1,6 +1,6 @@
 # **Alyona Kokorina**
 
-## * **Contacts**
+## **Contacts**
 + email: alcom-5@yandex.ru
 + tel.: +7 (911) 913-17-90
 + location: Saint-Petersburg, Russia
