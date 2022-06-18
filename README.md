@@ -1,1 +1,1 @@
-https://aspodsnezhnik.github.io/rsschool-cv/cv
+https://aspodsnezhnik.github.io/rsschool-cv/
